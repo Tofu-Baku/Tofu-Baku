@@ -1,6 +1,10 @@
 # i eat ass
 
-<img width="233" height="227" alt="image" src="https://github.com/user-attachments/assets/85598e64-1f44-4737-9e31-1580da4e321b" />
+<img width="1062" height="42" alt="image" src="https://github.com/user-attachments/assets/ea8006fe-9cfd-4fd7-a308-f7b993e659ba" />
+
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/fe0727dc-9987-44a4-bc10-aaddeaae7cf1" />
+
+
 
 <!--
 **Tofu-Baku/Tofu-Baku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
