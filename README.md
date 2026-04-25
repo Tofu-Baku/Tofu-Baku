@@ -1,4 +1,4 @@
-# i eat ass
+# Tofu is better then anyone here 
 
 <div align="center">
                 *Katsuki Lover since 2016*
