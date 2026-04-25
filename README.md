@@ -1,6 +1,9 @@
 # i eat ass
 
+<div align="center">
 <img width="1062" height="42" alt="image" src="https://github.com/user-attachments/assets/ea8006fe-9cfd-4fd7-a308-f7b993e659ba" />
+
+Katsuki Lover since 2016
 
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/fe0727dc-9987-44a4-bc10-aaddeaae7cf1" />
 
