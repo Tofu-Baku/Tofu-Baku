@@ -1,4 +1,4 @@
-## Hi there 👋
+#i eat ass
 
 <!--
 **Tofu-Baku/Tofu-Baku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
