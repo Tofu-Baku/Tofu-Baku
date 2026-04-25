@@ -1,7 +1,7 @@
 # Tofu is better then anyone here 
 
 <div align="center">
-                *Katsuki Lover since 2016*
+                                           <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=B81D07BB&width=435&lines=Katsuki+Bakugo+is+mine+%3E%3A3" alt="Typing SVG" /></a>
 <img width="1200" height="350" alt="image" src="https://github.com/user-attachments/assets/fe2bd4a5-ccd4-428b-bfb5-152a8d3aa20e" />
 
 
