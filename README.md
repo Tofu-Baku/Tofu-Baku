@@ -2,13 +2,8 @@
 
 <div align="center">
                 *Katsuki Lover since 2016*
-<img width="1062" height="42" alt="image" src="https://github.com/user-attachments/assets/ea8006fe-9cfd-4fd7-a308-f7b993e659ba" />
+<img width="1200" height="350" alt="image" src="https://github.com/user-attachments/assets/fe2bd4a5-ccd4-428b-bfb5-152a8d3aa20e" />
 
-
-
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/fe0727dc-9987-44a4-bc10-aaddeaae7cf1" />
-
-<img width="1062" height="42" alt="image" src="https://github.com/user-attachments/assets/ea8006fe-9cfd-4fd7-a308-f7b993e659ba" />
 
 <!--
 **Tofu-Baku/Tofu-Baku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
