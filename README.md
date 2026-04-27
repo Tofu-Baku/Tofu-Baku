@@ -4,6 +4,8 @@
                                            <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=B81D07BB&width=435&lines=Katsuki+Bakugo+is+mine+%3E%3A3" alt="Typing SVG" /></a>
   
  [Strawpage](https://bakugotofu.straw.page/) ദ്ദി◝ ⩊ ◜.ᐟ
+
+ [My GirlFriend](https://github.com/xzuzui) <- we should REALLY date fr /winks
  
  <img width="828" height="13" alt="image" src="https://github.com/user-attachments/assets/b20fa149-f3e1-4112-8906-fa0bfe2fa859" />
 
