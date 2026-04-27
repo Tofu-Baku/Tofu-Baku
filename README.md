@@ -5,7 +5,7 @@
   
  [Strawpage](https://bakugotofu.straw.page/) ദ്ദി◝ ⩊ ◜.ᐟ
 
- [My GirlFriend](https://github.com/xzuzui) <- we should REALLY date fr /winks
+ [𝙼𝚢 𝙶𝚒𝚛𝚕𝙵𝚛𝚒𝚎𝚗𝚍](https://github.com/xzuzui) <- we should REALLY date fr /winks
  
  <img width="828" height="13" alt="image" src="https://github.com/user-attachments/assets/b20fa149-f3e1-4112-8906-fa0bfe2fa859" />
 
