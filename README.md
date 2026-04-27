@@ -5,7 +5,7 @@
   
  [Strawpage](https://bakugotofu.straw.page/) ദ്ദി◝ ⩊ ◜.ᐟ
 
- [𝙼𝚢 𝙶𝚒𝚛𝚕𝙵𝚛𝚒𝚎𝚗𝚍](https://github.com/xzuzui) <- we should REALLY date fr /winks
+ [𝙼𝚢 𝙶𝚒𝚛𝚕𝙵𝚛𝚒𝚎𝚗𝚍](https://github.com/xzuzui) <h4 align="center">${\textsf{\color{#7b1800}We should date Zuu}}$
  
  <img width="828" height="13" alt="image" src="https://github.com/user-attachments/assets/b20fa149-f3e1-4112-8906-fa0bfe2fa859" />
 
@@ -14,19 +14,22 @@
 
 <img width="828" height="13" alt="image" src="https://github.com/user-attachments/assets/90f70ac8-3ea6-43c9-aef9-2a7f1f40265a" />
 
- if you have drama don't bring it around me!
+
+<h4 align="center">${\textsf{\color{#7b1800} if you have drama don't bring it around me!}}$
+
 
 <img width="828" height="13" alt="image" src="https://github.com/user-attachments/assets/6b586ddd-4782-48a1-ae9b-51f76026f3c5" />
 
- i dont give a fuck what its about just piss of and dont INT with me.
+<h4 align="center">${\textsf{\color{#7b1800} i dont give a fuck what its about just piss of and dont INT with me.}}$
 
 <img width="828" height="13" alt="image" src="https://github.com/user-attachments/assets/793e7398-ebbb-462e-894b-47073b7388ce" />
 
- If you want to be friends, don't be a little bitch to ANYONE, you have to be nice to EVERYONE and not just your friends.
+<h4 align="center">${\textsf{\color{#7b1800} If you want to be friends, don't be a little bitch to ANYONE, you have to be nice to EVERYONE and not just your friends.}}$
+
 
 <img width="828" height="13" alt="image" src="https://github.com/user-attachments/assets/b31c0dba-bde7-4ebd-8d03-cb7433095821" />
 
-She / Her / Female <-- I WAS BORN A FEMALE, SO USE SHE HER not they them or he him. 
+<h4 align="center">${\textsf{\color{#7b1800}She / Her / Female <-- I WAS BORN A FEMALE, SO USE SHE HER not they them or he him. }}$
 
 <img width="828" height="13" alt="image" src="https://github.com/user-attachments/assets/42b30749-a8d5-4b41-8500-846401d936ea" />
 
