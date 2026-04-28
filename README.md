@@ -3,9 +3,9 @@
 <div align="center">
                                            <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=B81D07BB&width=435&lines=Katsuki+Bakugo+is+mine+%3E%3A3" alt="Typing SVG" /></a>
   
- [Strawpage](https://bakugotofu.straw.page/) ദ്ദി◝ ⩊ ◜.ᐟ
+ [Strawpage](https://bakugotofu.straw.page/) ദ്ദി◝ ⩊ ◜.ᐟ  
 
- [𝙼𝚢 𝙶𝚒𝚛𝚕𝙵𝚛𝚒𝚎𝚗𝚍](https://github.com/xzuzui) <h4 align="center">${\textsf{\color{#7b1800}We should date Zuu}}$
+ [𝙼𝚢 𝙶𝚒𝚛𝚕𝙵𝚛𝚒𝚎𝚗𝚍](https://github.com/xzuzui) [𝚂𝚒𝚐𝚗 𝚖𝚢 𝙶𝚒𝚛𝚕𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚊𝚝𝚊𝚋𝚘𝚘𝚔!](https://xxzu.atabook.org/) <h4 align="center">${\textsf{\color{#7b1800}We should date Zuu}}$
  
  <img width="828" height="13" alt="image" src="https://github.com/user-attachments/assets/b20fa149-f3e1-4112-8906-fa0bfe2fa859" />
 
