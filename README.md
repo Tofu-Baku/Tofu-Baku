@@ -5,7 +5,7 @@
   
  [Strawpage](https://bakugotofu.straw.page/) ദ്ദി◝ ⩊ ◜.ᐟ  
 
- [𝙼𝚢 𝙶𝚒𝚛𝚕𝙵𝚛𝚒𝚎𝚗𝚍](https://github.com/xzuzui) . [𝚂𝚒𝚐𝚗 𝚖𝚢 𝙶𝚒𝚛𝚕𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚊𝚝𝚊𝚋𝚘𝚘𝚔!](https://xxzu.atabook.org/) <h4 align="center">${\textsf{\color{#7b1800}We should date Zuu}}$
+ [𝙼𝚢 𝙶𝚒𝚛𝚕𝙵𝚛𝚒𝚎𝚗𝚍](https://github.com/xzuzui) . [𝚂𝚒𝚐𝚗 𝚖𝚢 𝙶𝚒𝚛𝚕𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚊𝚝𝚊𝚋𝚘𝚘𝚔!](https://xxzu.atabook.org/) <h4 align="center">${\textsf{\color{#7b1800}We should date Zuu / BE MY GIRLFRIEND 😝}}$
  
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=500&size=17&pause=1000&color=902B14BB&width=435&lines=Zuu+is+my+lover" alt="Typing SVG" /></a>
  
